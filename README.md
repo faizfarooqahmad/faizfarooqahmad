@@ -1,6 +1,6 @@
 ### Hi, I'm Faij Ahmad 👋
 
-I build Tech stuff | @ Aligarh Muslim University MCA | previously worked on: Google, AWS
+I build Tech stuff | @ Aligarh Muslim University MCA 2005 | previously worked on: Google, AWS
 
 The best way to reach me is via DM on LinkedIn.
 
